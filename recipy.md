@@ -1,0 +1,1 @@
+first we will make the base of the cake and than we will sone peaces of bread after than chocolate this process will be continued by 3 to 4 times. after that we would put some liquid chocolate in it .than some gemse. 
